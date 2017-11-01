@@ -1,4 +1,4 @@
-# 自由権
+# 自由権<font color="DeepSkyBlue"></font>
 
 
 
